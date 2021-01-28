@@ -1,1 +1,0 @@
-# gigaadam.github.io
